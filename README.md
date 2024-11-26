@@ -1,0 +1,2 @@
+# Kadir-ka-ar
+Ödev
